@@ -58,5 +58,5 @@ Below is the interactive control interface designed for stakeholders:
 
 ---
 📫 **Connect with Me:**
-* **LinkedIn:** linkedin.com/in/nabila-r-180597244/
+* **LinkedIn:** www.linkedin.com/in/nabila-r-180597244/
 * **Email:** bella.rahmahusna@gmail.com
